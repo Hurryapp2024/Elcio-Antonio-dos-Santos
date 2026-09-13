@@ -1,4 +1,4 @@
-<div align="center">
+<<div align="center">
 
 Elcio Antonio dos Santos
 
@@ -209,6 +209,11 @@ The perspective I bring: understanding both the commercial opportunity and the o
 <div align="center">
 
 Business understanding. Practical execution. Thoughtful use of technology.
+
+Explore my GitHub profile
+
+</div>
+
 
 Explore my GitHub profile
 
