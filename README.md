@@ -60,12 +60,3 @@ My experience also includes running construction and cleaning businesses, connec
 My primary interests are **business development, business operations, and transformation initiatives**. I also bring relevant experience to implementation coordination, product requirements, and AI-enabled workflow improvement.
 
 I am interested in teams that need someone who can understand a commercial opportunity and help organize the work required to deliver it.
-
-ial
-Hifive Telecom	Founder
-Claro Brasil	Regional Commercial Manager — Gerente Comercial Regional
-Skills Financial & Consultancy	Founder
-My experience also includes running construction and cleaning businesses, connecting customer acquisition with service delivery and operational costs.
-Opportunities
-My primary interests are business development, business operations, and transformation initiatives. I also bring relevant experience to implementation coordination, product requirements, and AI-enabled workflow improvement.
-I am interested in teams that need someone who can understand a commercial opportunity and help organize the work required to deliver it.
