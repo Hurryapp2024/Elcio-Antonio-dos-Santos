@@ -5,6 +5,8 @@
 
 Florida, United States · Interested in remote opportunities
 
+[Download résumé](Elcio_Santos_Resume.pdf) · [LinkedIn](https://www.linkedin.com/in/elcio-a-santos/) · [Email](mailto:elciousa001@gmail.com)
+
 [Strengths](#core-strengths) · [Selected work](#selected-work) · [Background](#professional-background)
 
 ---
